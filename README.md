@@ -28,3 +28,4 @@ The large screen, though? It’s handy sometimes, but there’s no way it would 
 
 What about you? If you buy the Pro Max/Plus models for the large screen, what are the main benefits to you? Please share your perspective in the comments.
 
+Source :  https://9to5mac.com/2020/11/19/iphone-12-pro-max-screen-size/amp/
